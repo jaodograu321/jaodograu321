@@ -1,4 +1,4 @@
-## 🤟Eae, meu nome é João e tenho 16 anos🤟
+## 🤟Eae, meu nome é João e tenho 16 anos: vida de caipira não é fácil🤟
 
 <!--
 **jaodograu321/jaodograu321** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
